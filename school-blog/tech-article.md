@@ -1,0 +1,1 @@
+The modern age is the age of technology, and we all have become used too of it. Technology is completely dominating us, and it has become impossible for us to live without it. Reading about technology will exactly be like fun. So let’s have fun through the few sets of 10 lines below.
